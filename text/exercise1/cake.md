@@ -21,7 +21,7 @@ Formio on 12 October 1797? I did not.
 
 Preheat the oven to 350 degrees F (175 degrees C).
 
-Grease a 9x13-inch baking pan.
+Grease a 9x13-inch baking pan with a healthy oil
 
 Mix the flour, baking powder, and salt together in a medium bowl.
 
